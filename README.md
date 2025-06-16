@@ -2,7 +2,7 @@
 - 👀 I’m interested in , coding!!!!
 - 🌱 I’m currently learning ,html and css
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me email ultimationansh@gmail.com
 - 😄 Pronouns: He,him
 - ⚡ Fun fact: Im 11 year old for real
 
